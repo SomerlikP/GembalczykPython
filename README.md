@@ -1,1 +1,1 @@
-GembalczykPython
+Wąż p. Gembalczyk
